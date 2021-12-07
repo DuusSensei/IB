@@ -1,2 +1,2 @@
 # IB
-International Baccalaureate
+International Baccalaureate @ Mountain Creek State High School
